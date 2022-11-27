@@ -1,1 +1,1 @@
-# Kodluyoruz-E-itimi-kapsam-nda-a-t-m-ilk-repo
+# Kodluyoruz-Egıtımı-kapsamında-actıgım-ılk-repo
